@@ -1,4 +1,4 @@
-#  
+#  new my avatar Script is the best my avatar Script, featuring custom skins and auto-farm. Safe and powerful for all your needs.
 
 
 
